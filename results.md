@@ -13,7 +13,7 @@ Games that got nominated by more than half of the judges made up this shortlist:
 - Dango Dash
 - Dawn Will Come
 - El Dueloroso
-- Fix My Hearth
+- Fix My Heart
 - GB Corp.
 - GBCspelunky
 - Glory Hunters
